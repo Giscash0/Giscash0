@@ -14,4 +14,5 @@ Besides programming, I look into Japanese culture in my spare time.
 You can contact me by:
 
 Twitter: Giscash0 @T3aryT
+
 Discord: ThatOtherGuy#5797
